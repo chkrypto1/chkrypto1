@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @chkrypto1.
 - 👀 I’m interested in cryptocurrencieS, AI and cars
 - 📫 How to reach me.
-- You can write me via github OR MY TWITTER ACC or
+- You can write me via github OR MY TWITTER ACC
 
 
 
