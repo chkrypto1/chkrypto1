@@ -2,5 +2,6 @@
 - 👀 I’m interested in cryptocurrencieS, AI and cars
 - 📫 How to reach me.
 - You can write me via github OR MY TWITTER ACCOUNT
+- TRUST THE PROCESS
 
 
