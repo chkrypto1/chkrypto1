@@ -5,4 +5,4 @@
 - TRUST THE PROCESS AND DO THINKS THAT MAKES SENCE TO YOU
 - MOTIVATE YOURSELF EVERY DAY
 - , every week
-- and ewery month ...
+- and ewery month
