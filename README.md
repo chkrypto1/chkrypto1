@@ -4,6 +4,6 @@
 - You can write me via github OR MY TWITTER ACCOUNT
 - TRUST THE PROCESS AND DO THINKS THAT MAKES SENCE TO YOU
 - MOTIVATE YOURSELF EVERY DAY
-- , every week
-- and ewery month
+- every week
+- ewery month
   every day 
