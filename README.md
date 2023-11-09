@@ -7,4 +7,5 @@
 - every week
 - ewery month
   every day 
-- every hour 
+- every hour
+- every minute
