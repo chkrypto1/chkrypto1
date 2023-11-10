@@ -9,3 +9,4 @@
   every day 
 - every hour
 - every minute
+- - every second 
