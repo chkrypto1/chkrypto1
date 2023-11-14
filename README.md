@@ -12,3 +12,4 @@ i every year
 - every minute
 - - every second 
 - EVERY milisecond
+- EVERY micro milisecond
