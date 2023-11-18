@@ -9,4 +9,3 @@ i every year
 - ewery month
   every day 
 - every hour
-- every minute
