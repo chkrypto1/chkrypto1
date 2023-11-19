@@ -8,4 +8,3 @@ i every year
 - every week
 - ewery month
   every day 
-- every hour
