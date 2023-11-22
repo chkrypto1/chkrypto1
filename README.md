@@ -6,4 +6,3 @@
 - MOTIVATE YOURSELF EVERY DAY
 i every year 
 - every week
-- ewery month
