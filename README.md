@@ -4,4 +4,4 @@
 - You can write me via github OR MY TWITTER ACCOUNT
 - TRUST THE PROCESS AND DO THINKS THAT MAKES SENCE TO YOU
 - MOTIVATE YOURSELF EVERY DAY
-- dont blame others for 
+- dont blame others for your fals
