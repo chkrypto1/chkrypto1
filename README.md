@@ -5,4 +5,4 @@
 - TRUST THE PROCESS AND DO THINKS THAT MAKES SENCE TO YOU
 - MOTIVATE YOURSELF EVERY DAY
 - dont blame others for your fals or fails 
-- why dont you call me?
+- why dont you call me SUPPORT ?!
